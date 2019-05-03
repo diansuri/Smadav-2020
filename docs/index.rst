@@ -14,7 +14,7 @@ The administration pack integrated a refresh to ProActiv, a behavioral-primarily
 
 In addition, are becoming more and more. This software program, I believe safer Along with the existence of Antivirus that one, from 2009 so far I continue to be devoted to work with SMADAV For Mac
 
-About the remaining-aspect, buyers have to see 5 options. From here people today could attain in which they should scan the whole program, to disable or smadav 2019 antivirus enable the true-time safety to call some factors.
+About the remaining-aspect, buyers have to see 5 options. From here people today could attain in which they should scan the whole program, to disable or smadav 2020 antivirus enable the true-time safety to call some factors.
 
 This report card breaks down their scores in Each individual spot below and reveals some of the check success and facts points that attained Those people scores.
 
