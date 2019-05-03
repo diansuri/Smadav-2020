@@ -6,7 +6,7 @@
 Smadav 2020 Best Free Antivirus
 ==================
 
-`Alexa Karinov.co.id <https://www.alexa.com/siteinfo/karinov.co.id>`_ was integrated in Indonesia there is an English version. The system has a variety of features that will help halt your Pc system ending up becoming contaminated or broken.
+`Smadav 2020 <https://www.smadav2019.net/smadav-2020/>`_ was integrated in Indonesia there is an English version. The system has a variety of features that will help halt your Pc system ending up becoming contaminated or broken.
 
 Antivirus goods range with capabilities, effectiveness, standard of support and even more - our resources can be employed to assist you decide an answer which most accurately fits you.
 
