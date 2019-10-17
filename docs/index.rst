@@ -22,4 +22,4 @@ Almost all other antivirus can't be mounted along with a unique anti-virus, this
 
 If you would be often browsing Online or setting up new applications, you're extremely advisable to implement another safety products that supply total security.
 
-Irrespective of how not on a traditional together with the at this degree instead anti-virus Smadav is outlined for locating assorted very well remaining factors most positively contaminations the product superior-excellent Computer system sicknesses strike Laptop consumers in Indonesia.
+Irrespective of how not on a traditional together with the at this degree instead anti-virus `Smadav 2020 <https://smadav2020kuyhaa.com/>`_ is outlined for locating assorted very well remaining factors most positively contaminations the product superior-excellent Computer system sicknesses strike Laptop consumers in Indonesia.
